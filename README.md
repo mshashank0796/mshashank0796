@@ -12,10 +12,6 @@ MS Engineering Management @ UTA | Project & Operations Manager | Agile, Six Sigm
 
 Currently working as **Operations & Events Coordinator – Student Role** at **UTA, Mavericks Activity Centre**, where I focus on Orchestrated planning for 100+ high-volume events semiannually, ensuring on-time operational readine...
 
-<div align="left">
-  <img src="https://visitor-badge.glitch.me/badge?page_id=mshashank0796.mshashank0796" />
-</div>
-
 ## 📊 GitHub Analytics
 
 <div align="center">
